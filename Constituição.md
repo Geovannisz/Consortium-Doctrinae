@@ -1,7 +1,6 @@
 # Constituição do Grupo Consortium Doctrinae
 
-Caso prefira, baixe o arquivo PDF da constituição clicando [aqui](https://github.com/user-attachments/files/15932504/Constituicao.pdf).
-
+Recomendamos fazer o download do arquivo PDF da Constituição para melhor leitura clicando [aqui](https://github.com/user-attachments/files/15932504/Constituicao.pdf).
 
 ## Sumário
 

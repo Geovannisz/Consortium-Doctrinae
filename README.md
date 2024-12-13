@@ -1,4 +1,4 @@
 
 ---
 
-Aqui reunimos informações e arquivos referentes ao grupo Consortium Doctrinae.
+Aqui reunimos informações e arquivos referentes ao grupode estudos chamado Consortium Doctrinae.
